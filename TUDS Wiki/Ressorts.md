@@ -1,0 +1,1 @@
+Der Verein besteht aus verschiedenen Ressorts, die sich mit verschiedenen Aufgaben auseinandersetzen.
